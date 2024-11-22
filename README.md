@@ -1,1 +1,1 @@
-# imZawgg.github.io
+# zawgg.com
